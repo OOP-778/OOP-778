@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-**I'm 17 years old**
+**I'm 18 years old**
 
 **Lithuania**
 
